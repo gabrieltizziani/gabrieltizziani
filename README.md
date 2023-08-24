@@ -3,7 +3,7 @@
 
 - 🔭 **Atualmente trabalho em escritório de bilhar**
 
-- 📫 **gabrieldemelo@edu.unifil.br**
+- 📫 **gabrieldemelotizziani@gmail.com**
 
 - 📄 [Tenho conhecimento sobre o excel, a cada dia ganho experiência em relação ao meu curso ampliando meu conhecimento geral]
 
