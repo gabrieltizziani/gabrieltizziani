@@ -7,7 +7,7 @@
 
 - 📄 [Tenho conhecimento sobre o excel, a cada dia ganho experiência em relação ao meu curso ampliando meu conhecimento geral]
 
-- ⚡ **Eu acho que eu sou muito prestativo e dedicado**
+- ⚡ **Buscando evoluir e somar sempre**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
